@@ -1,4 +1,4 @@
-# A Charity Fundraiser Driven by Tabletop Roleplaying
+# A Charity Fundraiser Driven by TTRPG
 Call to TTRPG publishers, editor and authors all around the globe on itch.io
 
 ![poster of the CyberonConv third edition](https://i.imgur.com/Jm4BZnK.jpeg)
