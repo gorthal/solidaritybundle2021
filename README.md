@@ -8,7 +8,7 @@ We are calling for game creators from around the world to organize a fundraiser 
 This operation starts today on itch.io and will end **on Sunday, November 28, 2021**.
 
 ## How to participate? 
-You are a professional or amateur game author or editor and you are interested in this charity action?  You just have to publish your contribution on the itch.io website and join the Solidarity Bundle at this address : XXXX (address to come!)
+You are a professional or amateur game author or editor and you are interested in this charity action?  You just have to publish your contribution on the itch.io website and join the Solidarity Bundle at this address : XXXX (URL to come!)
 
 We are open to all games that stimulate our imaginations: role-playing games, LARP, game books, interactive fictions, multiple choice poems, lyrical games, ritual games, ... 
 
