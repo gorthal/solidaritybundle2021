@@ -24,7 +24,7 @@ Previous editions were held in 2020 in April and November. These events resulted
 
 In 2020 we organized 2 fundraising events for Secours Populaire, MSF and Handicap International. More than **26,000 € were collected in 2020** and donors received more than 150 roleplaying games in digital format.  
 
-- [site web](https://cyberconv.com)
+- [website](https://cyberconv.com)
 - [facebook](https://www.facebook.com/cyberconv)
 - [twitter](https://twitter.com/cyber_conv)
 - [youtube](https://www.facebook.com/cyberconv/)
