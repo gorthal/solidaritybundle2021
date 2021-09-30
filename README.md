@@ -3,7 +3,7 @@ Call to publishers and authors from around the world on itch.io for Doctors With
 
 The crisis of COVID continues to increase inequalities around the world with a brutality that is further reinforced by the many conflicts and distress situations that affect the poorest. We must all feel concerned.
 
-We are calling for game creators from around the world to organize a fundraiser in November 2021 for Doctors Without Borders. **Doctors Without Borders (https://www.msf.fr/)** is an international medical humanitarian organization that works in 70 countries to help people whose lives or health are threatened. 
+We are calling for game creators from around the world to organize a fundraiser in November 2021 for Doctors Without Borders. **Doctors Without Borders (https://www.doctorswithoutborders.org/)** is an international medical humanitarian organization that works in 70 countries to help people whose lives or health are threatened. 
 
 This operation starts today on itch.io and will end **on Sunday, November 28, 2021**.
 
