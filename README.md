@@ -8,7 +8,7 @@ We are calling for game creators from around the world to organize a fundraiser 
 This operation starts on **Monday november 1rst** and will end on **Sunday, November 28, 2021**. 
 
 ## How to participate? 
-You are a professional or amateur game author or editor and you are interested in this charity action?  You just have to publish your contribution on the itch.io website and join the Solidarity Bundle at this address : XXXX (URL to come!)
+You are a professional or amateur game author or editor and you are interested in this charity action?  You just have to publish your contribution on the itch.io website and join the Solidarity Bundle at this address : [https://itch.io/s/55252/solidarity-bundle-for-doctors-without-borders](https://itch.io/s/55252/solidarity-bundle-for-doctors-without-borders)
 
 We are open to all games that stimulate our imaginations: role-playing games, LARP, game books, interactive fictions, multiple choice poems, lyrical games, ritual games, ... 
 
