@@ -5,7 +5,7 @@ The crisis of COVID continues to increase inequalities around the world with a b
 
 We are calling for game creators from around the world to organize a fundraiser in November 2021 for Doctors Without Borders. **Doctors Without Borders (https://www.doctorswithoutborders.org/)** is an international medical humanitarian organization that works in 70 countries to help people whose lives or health are threatened. 
 
-This operation starts today on itch.io and will end **on Sunday, November 28, 2021**.
+This operation starts on **Monday november 1rst** and will end on **Sunday, November 28, 2021**. 
 
 ## How to participate? 
 You are a professional or amateur game author or editor and you are interested in this charity action?  You just have to publish your contribution on the itch.io website and join the Solidarity Bundle at this address : XXXX (URL to come!)
